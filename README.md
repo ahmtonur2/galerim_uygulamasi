@@ -1,0 +1,1 @@
+# galerim_uygulamasi
